@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Dharmik !<br><br>🎯 What I’m Focusing On<br>- Learning and experimenting with new technologies  <br>- Building small apps that teach me something new every time  <br><br>🌐 Portfolio<br>- [dharmik.live](https://dharmik.live)<br><br>📫 How to Reach Me<br>- **Email:** dharmik.be@gmail.com<br>
+👋 Hi, I'm Dharmik !<br><br>🎯 What I’m Focusing On<br>- Learning and experimenting with new technologies  <br>- Building small apps that teach me something new every time  <br><br>🌐 Portfolio<br>- [dharmik.live](https://dharmik.live)<br><br>📫 How to Reach Me<br>- **Email:** connect@dharmik.live<br>
 
 
 ## 🌐 Socials:
